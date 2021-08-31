@@ -1,2 +1,2 @@
-# AnastaMitrohina.github.io
+# Анастасия Митрохина
 Мой первый сайт
